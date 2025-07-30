@@ -1,0 +1,3 @@
+# NaMi Electronic Standards - 30.07.2025 r.
+
+comming soon ...
